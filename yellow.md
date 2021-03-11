@@ -1,0 +1,2 @@
+SAO VỀ LỚP 
+Bé Sao bé bỏng mới được trả về từ quân Nghĩa vụ Quân sự dự bị để làm Dân quân tự vệ thường trực tại phường của mình. Theo quy định của Luật Nghĩa vụ Quân sự 2021, bé đã có thể đi học trở lại như bình thường bởi vì làm Dân quân tự vệ ở phường chỉ cần phải trực đêm và các buổi tối có nhiệm vụ đặc biệt. Vì thế hôm nay bé ở đây để viết tin này báo cáo cho thầy và mọi người rằng: "Bé đã về rồi đây!". 
